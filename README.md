@@ -11,4 +11,4 @@ Sir Arthur talking about his vain efforts teaching crows to swim underwater.
 However there is some special about the elder Sir Arthur, and besides the very sharp humour there is also a poignancy, especially in the third French Hens episode. It's hard not to think that there wa a slender
 connection between Sir Arthur and Peter himself.
 
-[First episode](https://github.com/rafalcode/streeb12days/blob/main/ep1_partridgepear.md)
+[First episode](https://github.com/rafalcode/streeb12days/ep1_partridgepear.md)
