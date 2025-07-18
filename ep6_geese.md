@@ -8,12 +8,7 @@ our trawler bound for KL.
 
 **LK**: Though the trawler never in fact reached Kuala Lumpur, did it?
 
-**SA**: No never mind it no the um SAR
-read his ugly head and we became clogged
-and after a few days we're weak from
-lack of food and we decided the only
-thing to do was for one of us to be
-killed and eaten by the others.
+**SA**: No never mind it no the um the Sargasso Sea reared its ugly head and we became clogged. After a few days we were weak from lack of food and we decided the only thing to do was for one of us to be killed and eaten by the others.
 
 **LK:** How did you decide who to kill?
 
@@ -25,7 +20,11 @@ SA: Lots?
 
 LK: Did you draw lots?
 
-SA: Lots? oh yes yes I yes I drew a great deal, I still do. Not particularly good at it but it's relaxing, more of a hobby than anything else no I meant uh just little sketches sketches little things like that.
+SA: Lots? oh yes yes I yes I drew a great deal, I still do. Not particularly good at it but it's relaxing, more of a hobby than anything else.
+
+LK: Nno I meant uh ...
+
+SA: Just little sketches sketches little things like that.
 
 **LK:** But in the situation on the trawler when you had to kill these men, did you draw lots?
 
@@ -38,7 +37,7 @@ now
 
 **LK:** How did you decide which man to kill?
 
-**SA:** Well not by sitting around doodling I can tell you that! I mean, oh, I see, oh yes um, well a group of us got together in the in the stern and decided to U gang up on Davidson and one of was um Pickering I think it was said um he prefer it to be done fairly.
+**SA:** Well not by sitting around doodling, I can tell you that! I mean, oh, I see, oh yes um, well a group of us got together in the in the stern and decided to U gang up on Davidson and one of was um Pickering I think it was said um he prefer it to be done fairly.
 
 LK: Dan Fairly?
 
