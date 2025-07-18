@@ -1,7 +1,7 @@
 # Episode 12: Twelve Lords A-Leaping
 
 <style type="text/css">
-p {text-indent: -16px; margin-left: 16px; }
+p {text-indent: -26px; margin-left: 26px; }
 </style>
 
 **LK:** Well Sir Arthur I very much enjoyed our talks.
@@ -12,8 +12,10 @@ p {text-indent: -16px; margin-left: 16px; }
 
 **SA:** My last gift I'm sure you've guessed it is 12 Lords a leaping
 
-o**LK:** Why have you chosen that?
-**SA:** Well as a Christmasy thing really, to remind us all in this season of goodwill of the 12 wise Lords who came leaping into the stable at Bethlehem at the birth of our saviour
+**LK:** Why have you chosen that?
+
+**SA:** Well as a Christmasy thing really, to remind us all in this season of goodwill
+of the 12 wise Lords who came leaping into the stable at Bethlehem at the birth of our saviour
 
 
 LK: I don't think they did Sir Arthur
@@ -25,7 +27,7 @@ who
 was in the stable must have been a the uh the hens
 was it three hens no very sorry about this
 was it the goats they in the stable uh partridges I'm oh par two Turtle dos Three French Lords four normous Lars 12 Leaping Lizards hens I'm a bit of a mdle not much of a Bible buff myself I'm afraid don't take much interesting Christmas it used to be great fun in the old days
-when it
+    when it
 was simply an orgy of commercial excess but now I find the people are tainting the
 whole thing
 with a lot of religious mumbo jumbo thank the Lord is over for another year yes I I
