@@ -50,29 +50,30 @@ with the public.
 
 LK: Why do you think that is?
 
-SA: Well I think probably people are attracted by by the enormous sign outside on the A34 saying Miniature Railway Farm Zoo vintage car museum tropical aquarium jousting exhibitions bonsai garden and licensed restaurant it is very impressive yes uh it is isn't it uh one of our neighbors the Duke of Bedford very kindly allowed us to steal it from him but gribling is not a large garden it's nothing like Wen or Blen him or any of those places it's a compact Garden
-we have Vines of course oh no
-we don't have Vines actually
-we don't have any Vines at all not even a hint of a Vine but
-we have uh
-we have cacti
-why do you think people keep coming because you don't have very many CI do you uh just the one
-well as I say uh I have a hunch that the sign may have something to do
+SA: Well I think probably people are attracted by by the enormous sign outside on the A34 saying "Miniature Railway, Farm, Zoo, Vintage Car Museum, Tropical Aquarium, Jousting Exhibitions, Bonsai Garden and Licensed Restaurant.
+
+LK: It is very impressive yes.
+
+SA: Uh it is, isn't it? Uh one of our neighbors, the Duke of Bedford, very kindly allowed us to steal it from him. But Greebling is not a large garden. It's nothing like Woburn or Blenheim or any of those places. It's a compact garden. We have Vines of course oh no we don't have Vines actually we don't have any Vines at all not even a hint of a vine. But we have uh, we have cacti.
+
+LK: why do you think people keep coming because you don't have very many cacti, do you?
+
+SA: Uh just the one. Well as I say uh I have a hunch that the sign may have something to do
 with it it is a lovely sign
-we just keep it outside
-we keep all the outside outside but more than that it's it's a garden you can get around in a day isn't it
-well you can get around in a minute actually you don't have to
-waste a
-whole day trailing around the garden and your time is your own and entry is free is it entry yes it is free but exit is very very expensive it costs absolutely nothing to get in and £100 to get out it's a Walled Garden and aart from the cactus that's it
-well finally Arthur I feel I've got to know you a lot better over these last 12 days but I'm still curious as to one thing
-what is it in the end that you really believe in
-well um I like to say I believed in God of course but I'm afraid there's a thinking person
-who cares about the
-world around him there two very good reasons
-why I simply can't
-what are they
-well a
-wasps can't see the point of a
-wasp can you absolutely pointless and B caviar I mean really
-what is the point of having caviar locked away inside sturgeon so inaccessible I'm sure if a real God he
-would have arranged for caviar just to totle over to your house on a a pair of little legs in a self-opening jar Sir Arthur thank you oh thank you and uh season gings to you and of course your family [Music]
+we just keep it outside. We keep all the outside, outside. But more than that, it's ... it's a garden you can get around in a day isn't it? Well you can get around in a minute actually, you don't have to waste a whole day trailing around the garden and your time is your own.
+
+LK: And entry is free, is it?
+
+SA: Entry yes it is free, but exit is very very expensive. It costs absolutely nothing to get in and £100 to get out it's a Walled Garden and aart from the cactus that's it
+
+LK: Well finally Arthur I feel I've got to know you a lot better over these last 12 days but I'm still curious as to one thing, what is it in the end that you really believe in?
+
+SA: Well um I like to say I believed in God of course but I'm afraid as a thinking person who cares about the world around him there two very good reasons why I simply can't.
+
+LK: What are they?
+
+SA: Well em wasps. I can't see the point of a wasp, can you? Absolutely pointless. And b, caviar. I mean really, what is the point of having caviar locked away inside sturgeon ... so inaccessible. I'm sure if a real God he would have arranged for caviar just to toddle over to your house on a a pair of little legs in a self-opening jar.
+
+LK: Sir Arthur thank you.
+
+SA: Oh thank you and uh, season greeblings to you and of course your family.
