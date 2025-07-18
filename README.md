@@ -2,9 +2,8 @@
 
 This is a set of transcripts of the twelve 5 minute programmes, produced by Talkback and broadcast by the BBC during the Christmas period of 1990.
 
+I'm not sure what the intellectual property is on these. Although I used AI and youtube's own subtitles to do 80% of the translit, the remaining 20% took a jolly long time, as Sir Arthru might say even. The YouTube videos have been up for a very long time. It's also a bit weird nobody has transcripted these either and even searching google for some of extraordinary lines comes up with zero results.
 They are of course BBC property, but the programme themselves can be viewed on Youtube [here](https://www.youtube.com/playlist?list=PL5918027E140EF1F7)
-
-I'm not sure what the intellectual property is on these. The youtube videos have been up for a very long time. It's also a bit weird nobdy has transcripted these either and even searching google for some of extraordinary lines comes up with zero results.
 
 Sir Arthur Streeb-Greebling is a persona of Peter Cook, widely recognised as one the great comedic geniuses of the 
 United Kingdom. Peter invented him while he was quite young, and from that period there is a famous sketch of a
