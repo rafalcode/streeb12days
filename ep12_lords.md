@@ -26,23 +26,13 @@ LK: No I'm afraid you're mistaken.
 
 SA: You sure?
 
-LK: Yes quite certain last yeah it's very confusing um now never remember
-who
-was in the stable must have been a the uh the hens
-was it three hens no very sorry about this
-was it the goats they in the stable uh partridges I'm oh par two Turtle dos Three French Lords four normous Lars 12 Leaping Lizards hens I'm a bit of a mdle not much of a Bible buff myself I'm afraid don't take much interesting Christmas it used to be great fun in the old days
-    when it
-was simply an orgy of commercial excess but now I find the people are tainting the
-whole thing
-with a lot of religious mumbo jumbo thank the Lord is over for another year yes I I
-was going to ask you Sir Arthur how
-will you spend the rest of your year oh
-well uh the rest of the year that goes completely into preparation
-with the gribling Fate I have to go around putting signs up on all the trees saying August the 4th fate to get the villagers interested I always start putting these up good and early on about August the 5th generally as soon as the previous Fate has lumbered to a close like to give plenty of notice you raise a lot of money for charity I understand oh an enormous amount yes an enormous amount because fortunately
-we have very low overheads
-what
-we do is
-we simply throw open the grounds and invite villagers in to buy Nettles grass goats sparrows
+LK: Yes, quite certain.
+
+SA: Blast, oh dear, very confusing um now I never remember who was in the stable. Must have been the uh, the hens, was it? Three hens? No, very sorry about this. Was it the goats that were in the stable? Uh partridgesi? I'm, partridge, two turtle-doves, three French Lords four enormous larks, twelve leaping lizards hens, da da ... I'm in a bit of a muddle ... Not much of a Bible buff myself I'm afraid, don't take much interest. Christmas it used to be great fun in the old days, when it was simply an orgy of commercial excess, but now I find the people are tainting the whole thing with a lot of religious mumbo jumbo. Thank the Lord it's over for another year.
+
+LK: Yes I I was going to ask you Sir Arthur how will you spend the rest of your year?
+
+SA: Oh well uh the rest of the year, that goes completely into preparation with the Greebling fete. I have to go around putting signs up on all the trees saying August the 4th fete to get the villagers interested. I always start putting these up good and early on about August the 5th generally, as soon as the previous fete has lumbered to a close. I like to give plenty of notice you raise a lot of money for charity I understand oh an enormous amount yes an enormous amount because fortunately we have very low overheads. What we do is we simply throw open the grounds and invite villagers in to buy Nettles grass goats sparrows
 worms flies anything in fact that flourishes in the garden is theirs for under a f that money is then plowed back into my bank account do you have stalls for the produce or is it more pick your own
 we find that people get more pleasure in picking their own and in pursuing the
 worm particularly on their own that is a lonely sort of hunt the excitement that that sort of thing pick your own Nettles is is quite popular I suppose largely because the sign says mint as a result
