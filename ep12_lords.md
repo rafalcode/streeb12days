@@ -1,15 +1,19 @@
 # Episode 12: Twelve Lords A-Leaping
 
 <style type="text/css">
-p {text-indent: -10px; margin-left: 10px; }
+p {text-indent: -16px; margin-left: 16px; }
 </style>
 
-> **LK:** Well Sir Arthur I very much enjoyed our talks.
-> **SA:** They've been fun haven't they.
-> **LK:** Yes but now we come at last to your final gift and what's that?
-> **SA:** My last gift I'm sure you've guessed it is 12 Lords a leaping
-> **LK:** Why have you chosen that?
-> **SA:** Well as a Christmasy thing really, to remind us all in this season of goodwill of the 12 wise Lords who came leaping into the stable at Bethlehem at the birth of our saviour
+**LK:** Well Sir Arthur I very much enjoyed our talks.
+
+**SA:** They've been fun haven't they.
+
+**LK:** Yes but now we come at last to your final gift and what's that?
+
+**SA:** My last gift I'm sure you've guessed it is 12 Lords a leaping
+
+o**LK:** Why have you chosen that?
+**SA:** Well as a Christmasy thing really, to remind us all in this season of goodwill of the 12 wise Lords who came leaping into the stable at Bethlehem at the birth of our saviour
 
 
 LK: I don't think they did Sir Arthur
