@@ -10,8 +10,8 @@ Sir Arthur talking about his vain efforts teaching crows to swim underwater.
 
 However there is some special about the elder Sir Arthur (Peter was only about 53 though) and besides the very sharp humour there is also a poignancy, especially in the third French Hens episode. It's hard not to think that there wa a slender connection between Sir Arthur and Peter himself.
 
-[First episode](https://rafalcode.github.io/streeb12days/ep1_partridgepear.html)
-[Second episode](https://rafalcode.github.io/streeb12days/ep2_turtledoves.html)
-[Third episode](https://rafalcode.github.io/streeb12days/ep3_frenchhens.html)
-[Sixth episode](https://rafalcode.github.io/streeb12days/ep6_geese.html)
-[Twelfth episode](https://rafalcode.github.io/streeb12days/ep12_lords.html)
+- [First episode](https://rafalcode.github.io/streeb12days/ep1_partridgepear.html)
+- [Second episode](https://rafalcode.github.io/streeb12days/ep2_turtledoves.html)
+- [Third episode](https://rafalcode.github.io/streeb12days/ep3_frenchhens.html)
+- [Sixth episode](https://rafalcode.github.io/streeb12days/ep6_geese.html)
+- [Twelfth episode](https://rafalcode.github.io/streeb12days/ep12_lords.html)
