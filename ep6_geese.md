@@ -4,61 +4,51 @@ Six geese a laying
 **LK:** Towards the end of the war Sir Arthur you managed to escape from a Japanese Prisoner of War camp.
 
 **SA:** Yes that's right um
-our trawler bound for KL though the
-trawler never in fact reached Kuala Lumpur
-did it no never mind it no the um SAR
-read his ugly head and we became calmed
+our trawler bound for KL.
+
+**LK**: Though the trawler never in fact reached Kuala Lumpur, did it?
+
+**SA**: No never mind it no the um SAR
+read his ugly head and we became clogged
 and after a few days we're weak from
 lack of food and we decided the only
 thing to do was for one of us to be
 killed and eaten by the others.
 
-**LK:** How did you decide who to kill what did you draw
-Lots H did you draw lots lots oh yes yes
-I yes I drew a great deal I still do not
-particularly good at it but it's
-relaxing more of a hobby than anything
-else no I meant uh just little sketches
-sketches little things like that.
+**LK:** How did you decide who to kill?
 
-**LK:** But in the situation on the trawler when you had to kill these men did you draw lots?
+**SA**: What?
+
+LK: Did you draw lots?
+
+SA: Lots?
+
+LK: Did you draw lots?
+
+SA: Lots? oh yes yes I yes I drew a great deal, I still do. Not particularly good at it but it's relaxing, more of a hobby than anything else no I meant uh just little sketches sketches little things like that.
+
+**LK:** But in the situation on the trawler when you had to kill these men, did you draw lots?
 
 **SA:** yes I've just said I I drew all the time
 now
 
 **LK:** I mean did you draw straws?
 
-**SA:** No I've
-never drawn a straw draw very easy to
-draw as well you come to think of it but
-not very attractive and quite honestly
-when you're sitting around on the point
-of murdering a fellow passenger I don't
-think it would have been really tful to
-do that Bes I can't really see the point
-in producing a a drawing of a straw
-however lifelike can't say it's selling
-very well I mean it's it's hardly a
-gypsy Woman with a tear is it? Andy Warhol might have U might have
-exhibited a straw in a can of Coke I
+**SA:** No I've never drawn a straw draw very easy to draw as well you come to think of it but not very attractive and quite honestly when you're sitting around on the point of murdering a fellow passenger I don't think it would have been really tactful to do that. Besides, I can't really see the point in producing a a drawing of a straw - however lifelike - can't see it selling very well. I mean it's .., it's hardly a gypsy woman with a tear, is it? Andy Warhol might have U might have exhibited a straw in a can of Coke I
 
-**LK:** how did you decide which man to kill
+**LK:** How did you decide which man to kill?
 
-**SA:** Well not by sitting around doodling I can tell you that I mean oh I see oh yes
-um well a group of us got together in
-the in the stern and decided to U gang
-up on Davidson and one of was um
-Pickering I think it was said
-um he prefer it to be done fairly Dan
-Fairley yes Jimmy Dan Fairley he was the
-quartermaster of great buddies with
-Penrose that would be uh Chief Betty
-officer Penrose yes Jimmy done fairly
-and chalky Penrose how were the men
-killed incidentally no they
-decided that rather than one of us being
-discussed and then eaten why didn't we
-all um chip in a toe rival one was
+**SA:** Well not by sitting around doodling I can tell you that! I mean, oh, I see, oh yes um, well a group of us got together in the in the stern and decided to U gang up on Davidson and one of was um Pickering I think it was said um he prefer it to be done fairly.
+
+LK: Dan Fairly?
+
+SA: Yes Jimmy Dan Fairly, he was the quartermaster of great buddies with Penrose that would be uh Chief Petty Officer Penrose?
+
+SA: Yes Jimmy done fairly and Chalky Penrose.
+
+LK: How were the men killed incidentally
+
+SA: no they decided that rather than one of us being discussed and then eaten why didn't we all um chip in a toe rival one was
 tremendously relieved at that idea yes I
 can imagine you see because the street
 grings for some genetic reasons have
