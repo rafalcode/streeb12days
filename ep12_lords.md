@@ -18,11 +18,15 @@ p {text-indent: -26px; margin-left: 26px; }
 of the 12 wise Lords who came leaping into the stable at Bethlehem at the birth of our saviour
 
 
-LK: I don't think they did Sir Arthur
+LK: I don't think they did that, Sir Arthur.
 
-AR that oh yes boing boing boing as in the carol
+AR: Oh yes, "boing boing boing", as in the carol.
 
-LK: No I'm afraid you're mistaken you sure yes quite certain last yeah it's very confusing um now never remember
+LK: No I'm afraid you're mistaken.
+
+SA: You sure?
+
+LK: Yes quite certain last yeah it's very confusing um now never remember
 who
 was in the stable must have been a the uh the hens
 was it three hens no very sorry about this
