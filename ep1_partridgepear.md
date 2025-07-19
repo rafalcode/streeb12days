@@ -24,7 +24,7 @@
 
 **LK:** These Streebs then presumably migrated, did they ...
 
-**SA:** ... in their long, proud underweari, yes. They migrated to Britain, which is where they first encountered the Greeblings. Now, the Greeblings were picts, and they were quite unlike the Streebs. You see, whereas the Streebs were tall, blond, willowy people, the Greeblings were short, dark, shrub like folk who worshipped the ladder.
+**SA:** ... in their long, proud underwear, yes. They migrated to Britain, which is where they first encountered the Greeblings. Now, the Greeblings were picts, and they were quite unlike the Streebs. You see, whereas the Streebs were tall, blond, willowy people, the Greeblings were short, dark, shrub like folk who worshipped the ladder.
 
 **LK:** Why was that?
 
