@@ -1,7 +1,7 @@
 # Episode 12: Twelve Lords A-Leaping
 
 <style type="text/css">
-p {text-indent: -16px; margin-left: 26px; }
+p {text-indent: -32px; margin-left: 26px; }
 </style>
 
 **LK:** Well Sir Arthur I very much enjoyed our talks.
