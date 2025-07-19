@@ -36,18 +36,14 @@ LK: Does such an animal exist?
 
 SA: No, that's what I said, who could imagine it!
 
-
 LK: Now for your fourth gift certainly
 
 SA: Yes I would like four enormous larks please.
 
 LK: Well I'm very sorry to tell you Sir Arthur that that has proved impossible at such short notice. We have in fact got you four calling birds.
 
-SA: well calling Birds they are no bloody used to anybody. I ordered four enormous locks and you come up with calling Birds I mean calling Birds another line enormous larks I mean I was all geared
-up to reminisce about various things and
-frankly I insisted on four enormous dogs
-with very good reason because who knows
-Lots we did trigger off figure off
+SA: well calling birds they are no bloody used to anybody. I ordered four enormous larks and you come up with calling Birds I mean calling Birds another line enormous larks I mean I was all geared
+up to reminisce about various things and frankly I insisted on four enormous larks with very good reason because who knows Lots we did trigger off figure off
 memories memories of I don't know what I
 mean even though the four and almost
 locked out here on the lawn and they
@@ -61,7 +57,7 @@ completely denuded of laps which is not
 as all of the I want to talk about at
 all as with each calling birds they
 they remind me of is it's how we sort of
-have these four enormous locks here and
+have these four enormous larks here and
 how annoying it is I mean it just seems
 to reach the complete impasse okay you
 where I believe in the twenties in
@@ -118,7 +114,7 @@ idea of also release moving round and
 round in circles ludicrous comes another
 picture which is completely surreal no
 they didn't move in a circle they moved
-and a hot water Bibble.
+and a hot water bibble.
 
 LK: A hot water bottle?
 
@@ -131,7 +127,10 @@ needed one for a lamppost or whatever we
 all disliked him intensely why we thought
 it was a bit mad frightful little man
 his bottom
-thank you sir Arthur if you just if you
+
+LK: Thank you sir Arthur
+
+SA: If you just if you
 have the larks here then I could
 remember something all I can remember is
 you didn't bring the latter five
