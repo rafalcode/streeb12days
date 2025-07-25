@@ -24,7 +24,7 @@
 
 **LK:** And what were they?
 
-**SA:** They were, if I remember correctly, Phillips and Osram.
+**SA:** They were, if I remember correctly, Philips and Osram.
 
 **LK:** Did you have many inquiries?
 
@@ -32,7 +32,7 @@
 
 **LK:** The DIY element?
 
-**SA:** Yes. Crossing off the "s" with a magic marker or whatever. My best lead was a chap I ran into at Pub called Watts, said he was toying with the idea of baptising his daughter, Sixty. It turned out he was lying, you can't trust anyone in business, so I rather abandoned the light bulbs. But then luckily, along came the Balinese fighting fish.
+**SA:** Yes. Crossing off the "s" with a magic marker or whatever. My best lead was a chap I ran into at pub called Watts, said he was toying with the idea of christening his daughter "Sixty". It turned out he was lying, you can't trust anyone in business, so I rather abandoned the light bulbs. But then luckily, along came the Balinese fighting fish.
 
 **LK:** The what?
 
