@@ -58,7 +58,7 @@ p {text-indent: -32px; margin-left: 26px; }
 
 **LK:** Because the fish will eat the envelope?
 
-**SA:** The fish will eat the envelope, turn on itself in a feeding frenzy, and take its own life. The whole caboodle disappears en route and the customer gets bugger all, and that's that's a teensy weensy bit dishonest, I think.
+**SA:** The fish will eat the envelope, turn on itself in a feeding frenzy, and take its own life. The whole caboodle disappears en route and the customer gets bugger all, and that's a teensy weensy bit dishonest, I think.
 
 **LK:** Sir Arthur, were you ever accused of fraudulent trading?
 
@@ -83,16 +83,16 @@ p {text-indent: -32px; margin-left: 26px; }
 
 **LK:** ... B Yeats.
 
-**SA:** Never heard of him. D Yaits?
+**SA:** Never heard of him. D Aits?
 
 **LK:** Yes.
 
-**SA:** D Yaits Lawrence I knew. Lady Chatterbox and her whatnot.
+**SA:** D Aits Laurence I knew: Lady Chatterbox and her whatnot.
 
-**LK:** Well, to any rate, sir Arthur, Seven-Swans-A-Swimming, your seventh choice.
+**LK:** Well, at any rate, sir Arthur, Seven-Swans-A-Swimming, your seventh choice.
 
 **SA:** No it wasn't.
 
 **LK:** Thank you, sir Arthur.
 
-**SA:** I distinctly remember ordering seven pairs of ex army binoculars. You know, those X-ray things, I've always hankered after those. Bloody inefficient, you order binoculars and you get swans, I don;t know what ...
+**SA:** I distinctly remember ordering seven pairs of ex army binoculars. You know, those X-ray things, I've always hankered after those. Bloody inefficient, you order binoculars and you get swans, I don't know what ...
