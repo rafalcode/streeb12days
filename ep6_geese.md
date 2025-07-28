@@ -1,5 +1,4 @@
-Chapter 6
-Six geese a laying
+# Episode 6: Six Geese A Laying
 
 **LK:** Towards the end of the war Sir Arthur you managed to escape from a Japanese Prisoner of War camp.
 

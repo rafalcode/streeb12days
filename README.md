@@ -19,4 +19,5 @@ However there is some special about the elder Sir Arthur (Peter was only about 5
 - [Sixth episode](https://rafalcode.github.io/streeb12days/ep6_geese.html)
 - [Seventh episode](https://rafalcode.github.io/streeb12days/ep7_swans.html)
 - [Eighth episode](https://rafalcode.github.io/streeb12days/ep8_maids.html)
+- [Tenth episode](https://rafalcode.github.io/streeb12days/ep10_pipers.html)
 - [Twelfth episode](https://rafalcode.github.io/streeb12days/ep12_lords.html)
